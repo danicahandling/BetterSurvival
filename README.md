@@ -1,0 +1,2 @@
+# BetterSurvival
+this sucks
